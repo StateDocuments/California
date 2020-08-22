@@ -8,3 +8,4 @@
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/California/blob/master/tve71us101sausalitoroadundercross.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/California/blob/master/tvh04i80ashbyavenueonramp.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/California/blob/master/tvr20i580wofmainst.jpg)
+![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/California/blob/master/webcam-006182.jpg)
