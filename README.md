@@ -8,6 +8,5 @@
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/California/blob/master/514.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/California/blob/master/done.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/California/blob/master/hwy5atwilliamsnb.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/California/blob/master/hwy5atwilliamssb.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/California/blob/master/Screenshot_20200822-181932.png)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/California/blob/master/Screenshot_20200822-182253.png)
